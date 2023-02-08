@@ -1,1 +1,0 @@
-# naksanov.github.io
